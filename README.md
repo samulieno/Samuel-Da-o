@@ -1,1 +1,4 @@
-    Samuel Daňo
+    #Samuel Daňo
+    #Hodina ticha
+    #Myseľ, vedomie
+    #Ekonomika
